@@ -1,4 +1,4 @@
-Finaltics Financial Analyst Program
+Finlatics Financial Analyst Program
 
 Roshan Sanap successfully completed the Finaltics Financial Analyst Program, an intensive experience designed to provide participants with a deep understanding and practical knowledge in the field of investment banking and private equity. The program duration was from January 4, 2024, to February 11, 2024, and was conducted under the esteemed supervision of industry experts.
 
